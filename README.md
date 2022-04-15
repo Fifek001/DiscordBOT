@@ -15,3 +15,8 @@ BAN, KICK, SAY oraz wiele innych. Prosty w obsłudze.
 
 
 Aktualna Stabilna Wersja: 0.1
+
+
+
+
+``NA DNIACH GO UDOSTĘPNIĘ!!!!!!``   
